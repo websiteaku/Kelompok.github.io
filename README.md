@@ -1,2 +1,8 @@
-
-https://github.com/websiteaku/Kelompok.github.io/issues/1#issue-2030816705
+![gambar1](https://github.com/websiteaku/Kelompok.github.io/assets/152873513/98395b0f-2e67-411c-a3d7-922069c957b4)
+![gambar2](https://github.com/websiteaku/Kelompok.github.io/assets/152873513/e701ad8d-1280-4a93-9a7e-3483dc72ffdc)
+![gambar3](https://github.com/websiteaku/Kelompok.github.io/assets/152873513/f379bf64-4f6e-47b5-9e90-c650c8138c0f)
+![gambar4](https://github.com/websiteaku/Kelompok.github.io/assets/152873513/f9d64e15-3c78-4c03-8aa9-1e64fc75f3b7)
+![gambar5](https://github.com/websiteaku/Kelompok.github.io/assets/152873513/7d8e7d07-d8e8-4cad-84eb-389cad57dfea)
+![gambar6](https://github.com/websiteaku/Kelompok.github.io/assets/152873513/dbadca75-5a15-45f6-be0c-b1591c108be4)
+![gambar7](https://github.com/websiteaku/Kelompok.github.io/assets/152873513/e8173579-48bc-457a-8fde-2d33ae87e87d)
+![gambar8](https://github.com/websiteaku/Kelompok.github.io/assets/152873513/d07b6585-f209-4276-9079-b81d63e21414)
